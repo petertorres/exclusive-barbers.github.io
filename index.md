@@ -2,6 +2,7 @@
 
 ⭐️ [Follow Exclusive Barbers on Facebook](https://www.facebook.com/Exclusive-Barbers-156723614413431)  
 ⭐️ [Follow Exclusive Barbers on Instagram](https://www.instagram.com/exclusivebarbers/)  
+⭐️ [Google Review](https://g.page/r/Cc8tjMA2xhdrEAo/review)
 
 ### Exclusive Barbers
 📍 1801 NW 68th Ave  
